@@ -10,7 +10,7 @@
 
 **Ponytown . . .** C+h freely , not a big fan of being covered , when off tab W2I , don't copy , Sleeping= AFK/busy !!
 
-**About me . . .** I am an alter in an OSDD-1b system! There's over 70 of us and we're very Fictive heavy. My age is 19 while the body is 15 as of right now! Don't ask for anyone to come out, you get who you get. Uhhhmmm, I dunno what else to say. Always interact with some sort of caution or care! We can be easily set off when we're already having a rough day, so please keep that in mind!!! :D
+**About me . . .** I am an alter in an OSDD-1b system! There's over 70 of us and we're very Fictive heavy. My age is 19 (Avery, the one typing this :p) while the body is 15 as of right now! Don't ask for anyone to come out, you get who you get. Uhhhmmm, I dunno what else to say. Always interact with some sort of caution or care! We can be easily set off when we're already having a rough day, so please keep that in mind!!! :D
 
 I hope you have a good day! And if you didn't, I hope you're okay!
 
