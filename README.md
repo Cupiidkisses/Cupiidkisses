@@ -8,7 +8,7 @@
 
 **Do Not Interact if . . .** Pro/dark shipper, under the age of 13 unless you're considered CLOSE. Racists, homophones, transphobes, maga, over 21, bigots, p3dos, and weirdos in general, **Lookout3d supporters / cosplayers!**
 
-**Ponytown . . .** C+h freely , not a big fan of being covered , when off tab W2I , don't copy , Sleeping = AFK/busy , All ships allowed !!
+**Ponytown . . .** C+h freely , not a big fan of being covered , when off tab W2I , don't copy , Dancing = AFK/busy , All ships allowed !!
 
 **About me . . .** I am an alter in an OSDD-1b system! There's 50+ of us (we don't know exactly how many, don't ask.)  and we're very Fictive heavy. My age is 19 (Avery, the one typing this :p) while the body is 15 as of right now! Don't ask for anyone to come out, you get who you get. Uhhhmmm, I dunno what else to say. Always interact with some sort of caution or care! We can be easily set off when we're already having a rough day, so please keep that in mind!!! :D
 
