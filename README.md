@@ -6,7 +6,7 @@
 <img align="left" src="https://files.catbox.moe/ua0j76.png" width="400"> **Interact if . . .** ***SFAWDE*** , Tadc , Rottmnt , MD , KOG , UT/DR , LMK , SIKAYD , Verity cast , Illit, TMNT , A Regect , LGBTQ+ , and more I can't list right now lmao. Don't be shy to interact, even if we don't share the same interests!!
 
 
-**Do Not Interact if . . .** Pro/dark shipper, under the age of 13 unless you're considered CLOSE. Racists, homophones, transphobes, maga, over 21, bigots, p3dos, and weirdos in general, **Lookout3d supporters / cosplayers!**
+**Do Not Interact if . . .** Pro/dark shipper, under the age of 13 unless you're considered CLOSE. Racists, homophones, transphobes, maga, over 21, bigots, p3dos, and weirdos in general, **Lookout3d + Twixxel supporters / cosplayers!**
 
 **Ponytown . . .** C+h freely , not a big fan of being covered , when off tab W2I , don't copy , Dancing = AFK/busy , All ships allowed !!
 
